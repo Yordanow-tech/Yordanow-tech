@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Software and Hardware Sciences
 - 📫 How to reach me :
 - Discord: v.yordanow__
-- 😄 Pronouns: V
+- 😄 Pronouns: Boy
 - ⚡ Fun fact: Boop-beep
 
 <!---
